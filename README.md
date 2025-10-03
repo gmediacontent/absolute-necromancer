@@ -1,1 +1,2 @@
-# absolute-necromancer
+# Absolute Necromancer
+Trahi par les membres de sa guilde, le redoutable nécromancien Jinhyeok échappe de peu à la mort en transférant son âme au tout dernier moment. Petit couac : il se réveille une décennie plus tard dans un tout nouveau corps dépourvu de magie. Armé de toute sa volonté, le jeune homme se lance dans une quête de pouvoir et de vengeance... Pour cela, il entreprend de gravir la mystérieuse Tour qui regorge de dangers autant que d'opportunités... Parviendra-t-il à se surpasser pour devenir le maître tout-puissant ?
